@@ -1,0 +1,32 @@
+
+### Lab Report: _Illuminating the Text_ 
+
+#### Daliyah Middleton
+
+October 14, 2019
+
+___
+
+**1). Process Description**:   
+   
+We entered the classroom, and to our surprise, candlelights surrounded the table to light the room and the materials on the table. In front of each seat was a handwritten paper, and a book that we would explore later. Our only directions was to copy the handwritten note to another piece of paper under the candlelights. Only a handful of students in the class were able to finish their copy, because many of the original cursive writings were written in extremely small font with very little space between the lines. After that, we tried to guess who our original letter was written by. From what I could read in my letter, I noticed a lot of discussion on public speaking and the “National Capitol”, so I figured it was some sort of influential, public speaker. I was informed that the letter I copied was written by Frederick Douglass. 
+Following this exercise, we looked through some geography textbooks that I believe were all printed within the 16th century. These pocket-sized books were packed with maps (some in color), and different areas of information as the years progressed. We discussed some of the additions and omissions through the various editions of the textbook.   
+   
+**2). Observations**:  
+   
+To begin with, writing under candlelight was physically straining to both my eyes and my hands. Considering that most of my everyday writing is not done with a wooden pencil anymore, I definitely began to feel the strain on my hand when I was copying on the back side of the paper. Similarly, I tend to write under artificial lights that fill the entire room not candlelights that only illuminate the space around you. Working under those predicaments made it more difficult to see the cursive on the original piece of paper and made the ability to copy it over accurately even more tiresome. The lack of light in addition to the intricate handwriting added to the difficulty of completing this task. Of course, scribes were used to this kind of labor copying over handwritten documents, but I still fully acknowledge their efforts because I can understand why this task may be a difficult one. 
+Furthermore, when we were comparing different editions of the textbooks I noticed that they all carried various amounts of information, each with a specific focus. For instance, one of the books that we looked into had a separate chapter for each of the states to provide details about their specific geographic features. While other books focused on astrology and other countries outside of the United States. It was interesting to note that the first textbook that I looked at contained a specific “note to the printer” within the first few pages to ensure that the printer inserted the map on the designated pages. Overall, I learned from this exercise how different forms of illuminated printing evolved as time went on and how that affected different copies of any given book.   
+  
+**3). Analysis**:   
+  
+Specifically, working under the candlelight left me with more appreciation for scribes. Scribes have to take several factors into account including the legibility of the original handwriting, the amount of light that they can work under, the amount of paper that they’ll need and ink (if they are using a quill pen). In addition to their multitude of responsibilities, scribes are typically left with the decision on whether or not to fix the writer’s grammar mistakes if there are any. I remember reading the article _“Look!! Look!!! at This!!!!’: The Radical Typography of David Walker’s Appeal”_, where the author noted that the printer chose not to fix Walker’s grammatical “errors” because they were deliberately placed for emphasis (Dinius). 
+While I was copying over the Frederick Douglass text there were several words that I did not recognize either because I simply could not read them under the light, or understand them in the context of the sentence. I tried to use the context of the sentences surrounding the more difficult terms in order to make an educated guess about what the words may be. I can see why this may be a strenuous task for scribes because if they are not in communication with the original writer, then their copies may be filled with misinterpreted words and phrases. This brings me to an important point that we discussed in an earlier point in the course that makes a lot more sense now:   
+
+>I ask now in the name of God, if anyone desires to copy this book, that he corrects it well by the exemplar, because I have no control if someone brings it to error through lesser scribes, and it is then his peril, not mine. The bad scribe does much evil if he will not correct his errors (Hawk, 2014).    
+
+More specifically, the line from [_Ælfric's Preface to Genesis: A Translation_](https://brandonwhawk.net/2014/07/30/aelfrics-preface-to-genesis-a-translation/),“The bad scribe does much evil if he will not correct his errors”, speaks to me in this lab because I definitely understand how my interpretation of certain words may have easily distorted the intended meaning of the text, even with the slightest errors. I think that if I compared my copy with other students in the class or worked in a group for this assignment it would’ve made it easier to make decisions on particular language, but I know that the purpose of this lab probably would not have been fulfilled under those parameters.
+Ultimately, following this lab, I’ve gained more appreciation for scribes and their purpose in the printing process. Especially scribes that would copy multiple copies of texts, because even copying one double-sided page of text was difficult for me to complete in the 25 minutes that we had. Considering the lack of communication, light, adequate resources, and time restraints, scribes had to try their best to duplicate original copies probably with little to no guidance on how to decipher particular handwritings. From this, I can definitely understand why errors may be a common occurrence, while also simultaneously understanding how important it is not to make errors while copying a text. This proves that every person in the printing process plays an important role in putting words to paper (or any material) to allow for communication to be passed through several different groups of people and several generations for years to come.   
+
+___
+**References**:   
+Hawk, Brandon. __Ælfric's Preface to Genesis: A Translation_. 30 July, 2014 
