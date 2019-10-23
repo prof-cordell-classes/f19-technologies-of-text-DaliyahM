@@ -1,0 +1,35 @@
+### Lab Report: _Into the Archive_ 
+
+#### Daliyah Middleton
+
+October 23, 2019
+
+___
+
+**1). Process Description**:  
+ 
+For the first part of this lab, we visited the Northeastern Archives and Special Collections located in the basement of Snell library. In this lab we looked at a variety of books held in Northeastern archives, such as the medieval manuscript the [_Dragon Prayer Book_](https://dragonprayerbook.northeastern.edu/). The book that I looked at in particular was a reprint of _The History of Helyas, Knight of the Swan_. The book came with its own case that was engraved with different symbols that matched the front cover of the book. In regards to the book itself, the reprint was also heavily embellished with a variety of images (both black and white and color), decorated dropped capitals, and blackletter font. Along with the embellished case, the book also had clasps to close the book which was also decorated with the author’s initials. In addition to examining the books in the archives, we also explored a special collection of nontraditional “books”. While looking at this collection, we explored the different arguments for what is considered a book, and how we classify books. One piece that I liked in particular was the _Memories of Science Book_ by Dorothy A. Yale. I thought that this book was particularly interesting because of the variety of mediums presented within the small dimensions of the pop-up enclosure. The book followed a poetry format, with pop-up features throughout the poem, and a CD rom to listen to a soundtrack and add to the experience of reading the book. Although _Memories of Science_ is not a "traditional" book, I think it made the reading aspect more of an enjoyable and interactive experience for all readers which I personally believe will assist in readers understanding and responding to the scientific material.
+Moreover, for the second part of the lab we visited the Massachusetts Historical Society to look at another form of archives with a focus on children’s books. During this exploration we looked at texts such as _Peter Pan_, _I am an American: First lessons in Citizenship_, and the _Eliot Indian Bible_. While we did examine a diverse set of topics in the collection, I noticed that many of the books portrayed a specific political agenda or emphasized a particular argument that I did not expect from children’s texts. Ultimately, the books in the archives shows us today what both writers and publishers deemed as important to include in the final copies of their work.  
+
+**2). Observations**:  
+  
+From the initial lab at Northeastern’s archives I noticed that many of the books had particularly large margins, especially the book that I looked at: _The History of Helyas, Knight of the Swan_. Most of the text seemed to be justified in the center of the page, with the embellished drop capitals on several of the pages. I also noticed that the _Dragon Prayer Book_ includes multiple colors between the different lines, decorated capitals, and different metal tabs coming out of the pages. It is interesting to note how embellished many of the texts were for many texts printed prior to the 20th and 21st century. I think that today, when books have a more detailed cover or multiple illustrated pages the book automatically goes up in value, when in comparison to the books from the archives, they are only scarcely embellished.
+From the lab working with the nontraditional books, I've discovered not only that books can take a multitude of formats but reading can be done in many different operations as well. Typically, when I think of reading something I tend to think reading from left to right on one surface. When I looked at one "book" which was in a pop-up format looking through a window during _The Big Dig_, I realized that I was reading an image and not necessarily words on a page. I really appreciate when artists are able to go beyond the traditional aspects of our culture and present different mediums to prove that there are very few boundaries to construct a book, and it's really all up for interpretation.     
+ 
+ 
+**3). Analysis**:  
+  
+After completing these labs in the archives, this line from Boonie Mak’s article, _Architectures of the Page_ resonated with me:  
+
+>“Like its more familiar modern versions in the tablet computer, PDA, and mobile phone, the frame of the wax tablet marks the edges of the cognitive space of the page, providing clear direction about where information should be written and read” (Mak 6).   
+
+I chose this line in particular because it emphasizes the use for the margins on the page, and how they present the beginning and end of communication for the reader. I also thought it was interesting how the author compared the wax tablet to the modern versions of technology that present information in a similar manner. In connection to the labs, the majority of the texts in the archives had wider margins on the pages which were probably utilized for readers annotating the pages. More specifically, in the _History of Helyas_ book that I was looking into, the wider margins are not only presented as annotation space for the readers, but it is also presented as the space to show where the text begins and ends. Even with the different forms of nontraditional books that we explored in the Northeastern archives there were different structures presented and areas of “cognitive space” that provided the direction for the readers to understand how to read the given format. 
+Furthermore, I also resonated with this quote from _Architectures of the Page_:  
+
+>“The markings on the page are a part of the ‘cultural residue’ left by a battery of authors, scribes, artists, booksellers, book owners, and readers, and can be read as a compelling narrative about the social history of thought” (Mak 8).  
+  
+I found this quote interesting in relation to the quote on “cognitive space”, because it proves that the space left on pages can be used to make a cultural marking by the reader. This brings me back to a discussion we had in class about whether or not we mark up own personal books.I try to restrain from marking up my own personal reading because I like to keep the book in the best shape possible. With that being said, I do prefer to mark up textbooks because it helps me engage with the text and understand the material if I’m actively writing in the margins. I enjoyed that the writer regarding the annotations as “cultural residue” and not simply “marks left on the page", because each of those markings do present themselves as a part of the history of the book. These annotations also prove the way different readers engage with the text through different generations. Overall, I’ve learned from this lab that every aspect of the book has a designated purpose that may be fully appreciated by the readers.    
+
+___
+**References**:
+Mak, Bonnie. _Architectures of the Page_. University of Toronto Press, 2012. 
